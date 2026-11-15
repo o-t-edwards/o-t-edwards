@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <b>UC Berkeley</b> <i>(Visiting Exchange, 2026–27)</i> &nbsp;•&nbsp; <b>University of St Andrews</b> <i>(BSc Hons, Molecular & Cell Biology)</i>
+  <b>UC Berkeley</b> <i>(Visiting Exchange, 2026–27)</i> &nbsp;•&nbsp; <b>University of St Andrews</b> <i>(BSc Hons, Molecular & Cell Biology 2028)</i>
 </p>
 
 ---
